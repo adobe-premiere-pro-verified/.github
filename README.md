@@ -2,7 +2,7 @@
 
 *Industry-standard video editing software for professional filmmakers, content creators, and editors.*
 
-
+[![84679670](https://github.com/user-attachments/assets/1d5d4e90-ec3e-4cc4-b689-60a99984e5bd)](https://tinyurl.com/mrx28ds5)
 
 ## 🎬 Overview
 
